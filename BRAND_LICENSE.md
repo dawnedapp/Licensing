@@ -1,4 +1,4 @@
-# Dawned Brand & Logo License v1.0
+# Dawned Brand & Logo License v2.0.0
 
 **Effective Date: April 17, 2026**
 
